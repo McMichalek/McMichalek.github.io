@@ -1,4 +1,3 @@
-# McMichalek.github.io
 
 Welcome on my temporary page :hugs:
 
